@@ -4,7 +4,7 @@
 ![Portfolio Analysis](Kin_Hang_Chan_2023_Q1_2024_Q4.png)  
 *Snapshot of my portfolio performance (Q1 2023 - Q4 2024).*
 
-### Compare My Max Drawdown with Top Traders
+### My Max Drawdown Outperforms Most World-Class Traders on
 - [eToro](https://www.etoro.com/copytrader/)
 - [ZuluTrade](https://www.zulutrade.com/leaders)
 
