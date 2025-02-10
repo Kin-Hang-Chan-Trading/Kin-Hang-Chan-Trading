@@ -28,3 +28,8 @@ The same trades are executed on both platforms, giving you flexibility to follow
 Join the growing number of traders replicating successful strategies:  
 - 📈 **[PU Prime App](https://copytrading.puprime.com/)** – Follow and copy trades instantly.  
 - 📊 **[eToro - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** – Track performance and gain insights from my posts.  
+
+### ⚠ **Risk Warning**  
+Trading involves risk, and past performance does not guarantee future results.  
+To manage risk effectively, it is strongly recommended **not to allocate more than 10% of your total net assets** to copying my trades.  
+Always assess your risk tolerance and make informed financial decisions.  
