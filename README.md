@@ -31,5 +31,5 @@ Join the growing number of traders replicating successful strategies:
 
 ### ⚠ **Risk Warning**  
 Trading involves risk, and past performance does not guarantee future results.  
-To manage risk effectively, it is strongly recommended **not to allocate more than 10% of your total net assets** to copying my trades.  
+To manage risk effectively, it is strongly recommended **not to allocate more than 1% of your total net assets** to copying my trades.  
 Always assess your risk tolerance and make informed financial decisions.  
