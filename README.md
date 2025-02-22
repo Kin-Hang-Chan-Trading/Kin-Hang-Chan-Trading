@@ -31,5 +31,5 @@ Join the growing number of traders replicating successful strategies:
 
 ### ⚠ **Risk Warning**  
 Trading involves risk, and past performance does not guarantee future results.  
-It is strongly recommended **not to allocate more than 10% of your total net assets** to copying my trades and withdraw fund in less than 5 years.  
+It is strongly recommended **not to allocate more than 10% of your total net assets** to copying my trades and **not to withdraw fund in less than 5 years**.  
 Always assess your risk tolerance and make informed financial decisions.  
