@@ -14,8 +14,8 @@ The same trades are executed on both platforms, giving you flexibility to follow
 - 📊 Follow my **[eToro profile - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** to track my trades, view my performance, and read latest market insights.  
 
 ### 🚀 Discover My Trading Ideas  
-- [TSLA under Recession](https://www.tradingview.com/chart/TSLA/kSHKWM8K-TSLA-under-Recession/)
-- [Holding Nvidia: Capitalizing on AI's Growth](Nvidia%202025-02-25.md)
+- [TSLA under Recession](https://www.tradingview.com/chart/TSLA/kSHKWM8K-TSLA-under-Recession/) (2025-01-16)
+- [Holding Nvidia: Capitalizing on AI's Growth](Nvidia%202025-02-25.md) (2025-02-25)
 
 ### 🔥 Why Follow My Trades?  
 - **Superior Risk Management**  
