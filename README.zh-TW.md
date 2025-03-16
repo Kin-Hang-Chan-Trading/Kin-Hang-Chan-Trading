@@ -10,19 +10,19 @@
 
 ### 📌 在 PU Prime 或 eToro 上複製我的交易  
 相同的交易在兩個平台上執行，讓您可以靈活地在您喜歡的平台上跟進：  
-- 🔍 **在 [PU Prime 應用程式](https://copytrading.puprime.com/) 尋找 「KinHang Chan Trading」 **，探索我的活躍交易和投資組合表現。 
+- 🔍 在 [PU Prime 應用程式](https://copytrading.puprime.com/) **尋找「KinHang Chan Trading」**，探索我的活躍交易和投資組合表現。 
 - 📊 跟蹤我的**[eToro profile - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)**，追蹤我的交易、檢視我的表現，以及閱讀最新的市場見解。 
 
 ### 🚀 發掘我的交易理念  
-- 衰退中的 TSLA](https://www.tradingview.com/chart/TSLA/kSHKWM8K-TSLA-under-Recession/) (2025-01-16)
-- 持有 Nvidia：利用人工智能的成長](Nvidia%2025-02-25.md) (2025-02-25)
+- [衰退中的 TSLA](https://www.tradingview.com/chart/TSLA/kSHKWM8K-TSLA-under-Recession/) (2025-01-16)
+- [持有 Nvidia：利用人工智能的成長](Nvidia%2025-02-25.md) (2025-02-25)
 
 ### 🔥 為什麼要追蹤我的交易？ 
-- 優越的風險管理**  
+- **優越的風險管理**  
   採用嚴謹的策略來保護投資，因此最大回撤僅**4.37%**。 
-- 持續的優異表現**  
+- **持續的優異表現**  
   自 2023 年第一季至 2024 年第四季，累計回報率達到 **123.94%**，持續超越市場基準。 
-- 透明度與洞察力**  
+- **透明度與洞察力**  
   全面的投資組合分析與定期更新提供交易決策的完全透明度，協助追隨者有信心地做出明智選擇。 
 
 ### 🎯 今天就開始複製我的交易！ 
