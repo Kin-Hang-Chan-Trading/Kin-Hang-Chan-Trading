@@ -8,7 +8,7 @@
 - [eToro](https://www.etoro.com/copytrader/)  
 - [ZuluTrade](https://www.zulutrade.com/leaders)  
 
-### 📌 Copy My Trades on PU Prime or eToro  
+### 📌 Copy My Trades on eToro  
 The same trades are executed on both platforms, giving you flexibility to follow on your preferred one:  
 - 📊 Follow my **[eToro profile - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** to track my trades, view my performance, and read latest market insights.  
 
