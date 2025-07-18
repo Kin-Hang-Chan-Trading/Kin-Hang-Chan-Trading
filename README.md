@@ -10,7 +10,7 @@
 
 ### 📌 Copy My Trades on PU Prime or eToro  
 The same trades are executed on both platforms, giving you flexibility to follow on your preferred one:  
-- 📊 Follow my **[eToro profile - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** to track my trades, view my performance, and read latest market insights.  
+- 🔍 Follow my **[eToro profile - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** to track my trades, view my performance, and read latest market insights.  
 
 ### 🚀 Discover My Trading Ideas  
 - [TSLA under Recession](https://www.tradingview.com/chart/TSLA/kSHKWM8K-TSLA-under-Recession/) (2025-01-16)
