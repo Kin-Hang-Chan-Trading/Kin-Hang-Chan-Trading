@@ -10,7 +10,6 @@
 
 ### 📌 在 PU Prime 或 eToro 上複製我的交易  
 相同的交易在兩個平台上執行，讓您可以靈活地在您喜歡的平台上跟進：  
-- 🔍 在 [PU Prime 應用程式](https://copytrading.puprime.com/) **尋找「KinHang Chan」**，探索我的活躍交易和投資組合表現。 
 - 📊 跟蹤我的[**eToro profile - Kin Hang Chan**](https://www.etoro.com/people/thombert_chan)，追蹤我的交易、檢視我的表現，以及閱讀最新的市場見解。 
 
 ### 🚀 發掘我的交易理念  
@@ -27,7 +26,6 @@
 
 ### 🎯 今天就開始複製我的交易！ 
 加入複製成功策略的交易者行列：  
-- 📈 **[PU Prime App](https://copytrading.puprime.com/)** - 即時跟隨和複製交易。 
 - 📊 **[eToro - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** - 追蹤表現並從我的文章中獲得洞察力。 
 
 ### ⚠ **風險警告**  
