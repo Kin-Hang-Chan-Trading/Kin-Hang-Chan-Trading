@@ -10,7 +10,7 @@
 
 ### 📌 在 PU Prime 或 eToro 上複製我的交易  
 相同的交易在兩個平台上執行，讓您可以靈活地在您喜歡的平台上跟進：  
-- 📊 跟蹤我的[**eToro profile - Kin Hang Chan**](https://www.etoro.com/people/thombert_chan)，追蹤我的交易、檢視我的表現，以及閱讀最新的市場見解。 
+- 🔍 跟蹤我的[**eToro profile - Kin Hang Chan**](https://www.etoro.com/people/thombert_chan)，追蹤我的交易、檢視我的表現，以及閱讀最新的市場見解。 
 
 ### 🚀 發掘我的交易理念  
 - [衰退中的 TSLA](https://www.tradingview.com/chart/TSLA/kSHKWM8K-TSLA-under-Recession/) (2025-01-16)
