@@ -29,6 +29,4 @@ Join the growing number of traders replicating successful strategies:
 - 📊 **[eToro - Kin Hang Chan](https://www.etoro.com/people/thombert_chan)** – Track performance and gain insights from my posts.  
 
 ### ⚠️ **Risk Warning**  
-Trading involves risk, and past performance does not guarantee future results.  
-It is strongly recommended **not to allocate more than 10% of your total net assets** to copying my trades and **not to withdraw fund in less than 5 years**.  
-Always assess your risk tolerance and make informed financial decisions.  
+Trading involves risk, and past performance does not guarantee future results.
