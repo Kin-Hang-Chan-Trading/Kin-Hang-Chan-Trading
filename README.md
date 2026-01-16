@@ -34,8 +34,6 @@ From past records (2015-2018 HK stock/HSI future, plus recent), key metrics show
 
 *Early losses taught key risk lessons, leading to today's low-drawdown approach. Full trade logs available in repository files.*
 
-Certifications: 2019 HKSAIR Deep Learning Workshop, 2020 HK Blockchain Olympiad Training.
-
 ### 📉 My Max Drawdown Outperforms Most Top-Performing Traders on
 
 - [eToro CopyTrader](https://www.etoro.com/copytrader/)
