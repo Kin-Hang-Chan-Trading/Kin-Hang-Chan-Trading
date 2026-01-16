@@ -1,6 +1,6 @@
 # Kin Hang Chan Trading Portfolio Analysis
 
-Explore my verified trading records, portfolio performance analysis, low drawdown trading records, and low risk trading strategies. Over 10 years of experience, with cumulative returns of **123.94%** (Q1 2023–Q4 2024) at 4.37% max drawdown. HKUST BMath graduate with ML skills.
+Explore my verified trading records, portfolio performance analysis, low drawdown trading records, and low risk trading strategies. Over 10 years of experience, with cumulative returns of **123.94%** (Q1 2023–Q4 2024) at 4.37% max drawdown. HKUST BMath graduate.
 
 ## Table of Contents
 
