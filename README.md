@@ -36,6 +36,8 @@ Key metrics from real-money trading history (HK/US stocks and index futures):
 | 2023 | Multi-Asset | 53.58% | 1.89 | Strong recovery |
 | 2024 | Multi-Asset | 45.82% | 1.66 | Positive performance |
 
+*For 2025 and onward, current trading performance is available in real-time on my eToro profile.*
+
 *Education: Bachelor of Mathematics, HKUST. Quantitative background supports analysis. Certifications: Deep Learning Workshop (2019), Blockchain Olympiad Training (2020).*
 
 ### 📌 Copy My Trades on eToro
